@@ -23,5 +23,4 @@
 
 ## 📫 Como Entrar em Contato
 - 📧 [E-mail](mailto:otavioaugustusdev@outlook.com)
-- 🐦 [Discord](Kevincroos#0000)
 - 📷 [Instagram](https://www.instagram.com/NãoTenhoLOL)
